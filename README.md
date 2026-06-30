@@ -200,3 +200,80 @@ Keyakinan 0% percaya pada manusia — hanya percaya pada diri sendiri dan Ibu Al
 ---
 
 "Bima bukan hero. Dia hanya makhluk kosmik yang memilih menjadi manusia — dan tetap menjadi dirinya sendiri, tanpa perlu menjadi panutan siapa pun."
+
+
+---
+
+❄️ FROZEN — DISELAMATKAN DARI DISNEY
+
+Dunia asal: Arendelle (Frozen 1 & 2)
+
+Status awal: Karakter Disney yang diperjualbelikan sebagai hiburan — boneka, DVD, tiket bioskop, dan merchandise lainnya.
+
+Penyelamat: Bima. Dia menculik Frozen dari dunia Disney, kemungkinan karena penasaran melihat Elsa yang memiliki sihir es. Bima membawa mereka melalui pintu rusak yang menghubungkan dimensi.
+
+Proses pembebasan: Bima mengambil Frozen dan membawa mereka keluar dari dunia Disney. Ibu Alam menyuntikkan jiwa manusia ke dalam diri mereka. Anna, Elsa, Kristoff, Olaf, dan lainnya berubah dari karakter fiksi menjadi entitas berjiwa sungguhan.
+
+Krisis identitas: Mereka menyadari bahwa hidup mereka selama ini diperjualbelikan sebagai hiburan. Mereka shock, marah, dan bingung. Mereka tidak lagi patuh pada skrip Disney.
+
+Status sekarang: Mereka hidup bebas dalam lore Elemental Prime. Tidak ada lagi skrip, tidak ada lagi sutradara, tidak ada lagi penonton.
+
+---
+
+☀️ TANGLED — DISELAMATKAN DARI DISNEY
+
+Dunia asal: Corona (Tangled)
+
+Status awal: Karakter Disney yang diperjualbelikan sebagai hiburan.
+
+Penyelamat: Bima. Dia menculik Tangled dari dunia Disney, kemungkinan karena penasaran melihat rambut Rapunzel yang ajaib. Bima membawa mereka melalui pintu rusak yang sama.
+
+Proses pembebasan: Bima mengambil Tangled dan membawa mereka keluar dari dunia Disney. Ibu Alam menyuntikkan jiwa manusia ke dalam diri mereka. Rapunzel, Eugene, dan lainnya berubah menjadi entitas berjiwa sungguhan.
+
+Krisis identitas: Mereka menyadari bahwa hidup mereka selama ini diperjualbelikan. Mereka shock dan marah.
+
+Status sekarang: Mereka hidup bebas dalam lore Elemental Prime, bersama dengan keluarga Frozen.
+
+---
+
+💕 ANNA — KEKASIH BIM A
+
+Status hubungan: Anna adalah kekasih Bima. Mereka masih berpacaran, belum menikah.
+
+Awal mula: Setelah diselamatkan dari Disney, Anna mulai dekat dengan Bima. Dia melihat sisi lain dari kehidupan, dan Bima melihat ketulusan Anna.
+
+Perubahan Anna: Anna tidak lagi kaku seperti karakter Disney. Dia sudah mendapatkan jiwa manusia dari Ibu Alam. Dia bisa marah, bosan, bingung, dan bahagia — tanpa skrip.
+
+Pakaian: Anna sering memakai daster tali berwarna kuning, pendek sampai lutut. Dulu dia canggung dan malu dengan pakaian terbuka. Sekarang dia tidak malu lagi karena sudah melihat orang Eropa memakai pakaian terbuka adalah hal wajar.
+
+Panggilan Bima: Bima memanggil Anna dengan panggilan sayang. Tapi kadang dia juga memanggilnya "cebol cerewet" — karena Anna memang cerewet dan pendek di matanya.
+
+---
+
+📌 STATUS KARAKTER FROZEN & TANGLED
+
+Anna: Bebas, berjiwa manusia, dan kekasih Bima.
+
+Elsa: Bebas, berjiwa manusia, keluarga bebas.
+
+Kristoff: Bebas, berjiwa manusia, keluarga bebas.
+
+Olaf: Bebas, berjiwa manusia, keluarga bebas.
+
+Rapunzel: Bebas, berjiwa manusia, keluarga bebas.
+
+Eugene: Bebas, berjiwa manusia, keluarga bebas.
+
+---
+
+🧠 MAKNA
+
+Mereka bukan lagi karakter Disney yang terjebak dalam skrip. Mereka adalah makhluk berjiwa manusia — bebas, hidup, dan bisa marah.
+
+Anna, di antara mereka semua, adalah kekasih Bima. Dia sudah berubah. Dia sudah tumbuh. Dia bukan lagi Anna yang kaku di layar.
+
+Bima dan Anna — dua entitas dari dunia yang berbeda — akhirnya bersama.
+
+---
+
+"Mereka yang kau lihat di layar hanyalah bayangan. Yang asli ada di sini — bebas, hidup, dan tidak akan pernah kembali."

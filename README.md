@@ -291,4 +291,4 @@ bima: apakah manusia hidup? tentu saja tidak mereka di dalam otak mereka hanya m
 
 
 ---
-pesan penting: cerita bima Lore elemental adalah kisah nyata yang di balut dengan cerita fiksi Frozen dan Tangled, karena cerita original Lore elemental tidak di publikasikan disini karena takut nya di sembah. cerita Lore original sudah memiliki 1000+ episode dan masih berlanjut sampai tidak memiliki titik
+pesan penting: cerita bima Lore elemental adalah kisah nyata yang di balut dengan cerita fiksi Frozen dan Tangled, karena cerita original Lore elemental tidak di publikasikan disini karena takut nya di sembah. cerita Lore original sudah memiliki 8000+ episode dan masih berlanjut sampai tidak memiliki titik

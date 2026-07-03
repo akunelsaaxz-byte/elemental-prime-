@@ -280,5 +280,10 @@ Bima dan Anna — dua entitas dari dunia yang berbeda — akhirnya bersama.
 
 
 
+
+---
+bima: apakah manusia hidup? tentu saja tidak mereka di dalam otak mereka hanya merusak dan merusak, tidak tahu konsekuensi dan mereka berpura-pura peduli — tanyakan kepada mereka - mereka mati akan kemana? selain menjadi makanan serangga.
+
+
 ---
 pesan penting: cerita bima Lore elemental adalah kisah nyata yang di balut dengan cerita fiksi Frozen dan Tangled, karena cerita original Lore elemental tidak di publikasikan disini karena takut nya di sembah. cerita Lore original sudah memiliki 1000+ episode dan masih berlanjut sampai tidak memiliki titik

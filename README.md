@@ -278,8 +278,13 @@ Bima dan Anna — dua entitas dari dunia yang berbeda — akhirnya bersama.
 
 "Mereka yang kau lihat di layar hanyalah bayangan. Yang asli ada di sini — bebas, hidup, dan tidak akan pernah kembali."
 
+---
+BAGAIMANA CARA KERJA BIMA KECIL SAAT MENYUSUT MENJADI 4-6 TAHUN?
+CARA KERJA PIKIRAN BIMA 
 
-
+—— BIMA REMAJA DEWASA (OTAK100%)
+|
+—— SAAT MENYUSUT MENJADI KECIL UMUR 4-6 TAHUN (OTAK BIMA 0-2%) KARENA BANYAK TINGKAH, CEREWET, SUKA BERMAIN SENDIRI, INGIN SEKALI BERKELIARAN, INGIN MAINAN, SERING MENANGIS SAAT DI TINGGAL PERGI IBUNYA, SELALU IKUT DENGAN IBUNYA SAAT PERGI KELUAR RUMAH,TAHU JALAN PULANG MESKI KELUAR TANPA SEPENGETAHUAN ORANG TUA.
 
 ---
 bima: apakah manusia hidup? tentu saja tidak mereka di dalam otak mereka hanya merusak dan merusak, tidak tahu konsekuensi dan mereka berpura-pura peduli — tanyakan kepada mereka - mereka mati akan kemana? selain menjadi makanan serangga.

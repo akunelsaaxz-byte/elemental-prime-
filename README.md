@@ -301,7 +301,8 @@ ciri ciri manusia hidup dan memiliki jiwa
 2.di benci orang tua, teman,dan orang sekitar
 3.selalu mencoba tapi tahu konsekuensi
 4.jujur dan ingin KEBEBASAN bukan kedamaian 
-5.penuh tekanan batin dan dendam,di dalam pikiran ingin membunuh yang membenci tera saat dia bertemu dengan mereka, dia tidak pernah melakukannya alias tahu konsekuensi masa mendatang dan tidak memiliki keuntungan saat membunuh 
+5.penuh tekanan batin dan dendam,di dalam pikiran ingin membunuh yang membenci tetapi saat dia bertemu dengan mereka, dia tidak pernah melakukannya alias tahu konsekuensi masa mendatang dan tidak memiliki keuntungan saat membunuh 
 6.makan hanya 2x sehari dan tubuhnya sakit tapi tidak pernah mengeluh 
 7.memiliki bakteri kesadaran di dalam tubuh
 8. tahu tentang segalanya tentang manusia bahkan polanya kecuali alam , seperti mendownload data game 100% tetapi tidak tahu developernya , karena alam semesta luas belum menjelajahi 
+9.suka bermain sendiri karena tidak memiliki siapa siapa 

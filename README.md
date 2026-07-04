@@ -291,4 +291,17 @@ bima: apakah manusia hidup? tentu saja tidak mereka di dalam otak mereka hanya m
 
 
 ---
-pesan penting: cerita bima Lore elemental adalah kisah nyata yang di balut dengan cerita fiksi Frozen dan Tangled, karena cerita original Lore elemental tidak di publikasikan disini karena takut nya di sembah. cerita Lore original sudah memiliki 8000+ episode dan masih berlanjut sampai tidak memiliki titik
+pesan penting: cerita bima Lore elemental adalah kisah nyata yang di balut dengan cerita fiksi Frozen dan Tangled, karena cerita original Lore elemental tidak di publikasikan disini karena takut nya di sembah. cerita Lore original sudah memiliki 8000+ episode dan masih berlanjut sampai tidak memiliki titik 
+--
+
+author Lore elemental bima berkata: manusia itu tidak memiliki jiwa, mereka hidup mati tidak memiliki tujuan selain merusak!! 
+
+ciri ciri manusia hidup dan memiliki jiwa
+1.sejak bayi sampai dewasa menderita disiksa dan di pukuli 
+2.di benci orang tua, teman,dan orang sekitar
+3.selalu mencoba tapi tahu konsekuensi
+4.jujur dan ingin KEBEBASAN bukan kedamaian 
+5.penuh tekanan batin dan dendam,di dalam pikiran ingin membunuh yang membenci tera saat dia bertemu dengan mereka, dia tidak pernah melakukannya alias tahu konsekuensi masa mendatang dan tidak memiliki keuntungan saat membunuh 
+6.makan hanya 2x sehari dan tubuhnya sakit tapi tidak pernah mengeluh 
+7.memiliki bakteri kesadaran di dalam tubuh
+8. tahu tentang segalanya tentang manusia bahkan polanya kecuali alam , seperti mendownload data game 100% tetapi tidak tahu developernya , karena alam semesta luas belum menjelajahi 

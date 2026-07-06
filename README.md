@@ -305,4 +305,15 @@ ciri ciri manusia hidup dan memiliki jiwa
 6.makan hanya 2x sehari dan tubuhnya sakit tapi tidak pernah mengeluh 
 7.memiliki bakteri kesadaran di dalam tubuh
 8. tahu tentang segalanya tentang manusia bahkan polanya kecuali alam , seperti mendownload data game 100% tetapi tidak tahu developernya , karena alam semesta luas belum menjelajahi 
-9.suka bermain sendiri karena tidak memiliki siapa siapa 
+9.suka bermain sendiri karena tidak memiliki siapa siapa  
+
+
+
+--
+
+"ilmuwan yang menciptakan senjata tajam adalah ilmuwan terbodoh yang tidak memikirkan konsekuensi"
+
+
+
+bima: "Manusia selalu berbicara A,B,C"
+bima: you have no idea 
